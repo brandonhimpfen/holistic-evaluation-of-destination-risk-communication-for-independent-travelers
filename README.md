@@ -1,1 +1,1 @@
-# holistic-evaluation-of-destination-risk-communication-for-independent-travelers
+# Holistic Evaluation of Destination Risk Communication for Independent Travelers
